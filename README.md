@@ -1,4 +1,4 @@
-### Merhaba, Ben [Adınız Soyadınız] 👋
+### Merhaba, Ben BlackOwl. 👋
 
 [Linktree](https://linktr.ee/blackowltr) | [Twitter](https://twitter.com/brsbtc) | [Teletype](https://teletype.in/@blackowl)
 
